@@ -2,7 +2,7 @@ $${\color{cyan}AndreW2002\ STREAM\ HIGHLIGHTS\ }$$
 
 $${\color{cyan}spam\ following\ account\ -\ block\ if\ unwanted\ ! }$$
 
-
+$${\color{cyan}we\ follow\ people\ whose\ ponies\ we\ find\ cool\ !}$$
 
 <div align="center">
 
